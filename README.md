@@ -4,6 +4,6 @@ Das Netzwerk besteht aus einer Mailingliste für allgemeine Informationen, einer
 
 Eine Anmeldung zur Mailingliste ist [hier](https://lists.posteo.de/listinfo/lpegermany) möglich.
 
-Ein Beitritt zu unserer Zotero-Gruppe ist [hier](https://www.zotero.org/groups/4394373/law__political_economy) möglich. Die Quellensammlung kann hier eingesehen werden.
+Ein Beitritt zu unserer Zotero-Gruppe ist [hier](https://www.zotero.org/groups/4394373/law__political_economy) möglich.
 
 Kontakt: lpeg@systemli.org 
